@@ -1,7 +1,7 @@
 # presentacion-2022-DelfinoJulee
 
 
-**Estudiante de la UTN FRD
+**Estudiante de la UTN FRD**
 
 Algunos datos de interés:
 
